@@ -1,0 +1,1 @@
+One of the defining artists of the 2010s, Taylor Alison Swift (born December 13, 1989) is an American singer-songwriter and actress who has achieved success in country, pop, and alternative. At the age of fourteen, Swift moved to Nashville, Tennessee to pursue a career in country music. 
